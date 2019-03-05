@@ -1,2 +1,12 @@
 # diyarbakirtasima.com.tr
 Diyarbakır Evden Eve Nakliyat www.diyarbakirtasima.com
+
+Diyarbakır Evden Eve Nakliyat 2012 yılında diyar nakliyat adıyla strüktüre başlayıp 2014 yılında Diyarbakır evden eve taşımacılık olarak hizmetlerine devam etmektedir.ihtiyacınız olan evden eve nakliyat sektörünü daha teknolojik  asansörlerle ve ful donanımlı asansör kapalı kasa kamyonlarla evinizi temiz ve titiz bir şekilde taşıma işlemi gerçekleştirerek sizi istediğiniz adresten yeni bir adrese mutlu ve huzurlu taşımayı kendine hedef belirtmiş bir firmadır. Diyarbakır Da Nakliyat sektörü denince akla ilk gelebilecek firmaların arasında olmak ve her geçen gün daha iyi taşıma hizmeti vererek siz değerli hemşirelerimize ve tüm Türkiye geneli güneydoğunun incisi olan Diyarbakır'ımıza misafir etmek için tüm gayretimizle çalışmaktayız.
+
+Diyarbakır Evden Eve Taşımacılık her yıl hem tahin döneminde hemde kış aylarında şehirler arası nakliyat hizmeti vererek hizmetlerini her gecen gün geliştirip büyüterek daha Diyarbakır ve çevre illere hizmet vermeye devam etmektedir. Bizim taşımış olduğumuz müşterilerde aynı derecede memnun kalıp bir yenisini referanslarımıza ekleyip taşıma hizmeti almaktadırlar. Bizde Göstermiş olduğumuz evden eve nakliyat hizmetini her taşıdığımız evin bir önceki evden daha temiz daha titiz bir şekilde taşıma gayreti göstermekteyiz.Bununla beraber %100 Müşteri memnuniyeti alıp bu güne kadar hiç bir müşterimi ne taşıma günü nede sonrasında mağdur etmemiş bulunmaktayız.
+
+Diyarbakır Evden eve Nakliyat olarak müşterilerimiz ikinci bir fiyat pazarlığımız katti en yoktur. Evden Eve Nakliyat İşlemi sırasında oluşa bilecek büyük boyutlu hasarları tamamen biz karşılayıp müşterilerimizi bu konuda sıkıntıya yada zora sokacak bir durumla karşılaştırmamaktayız. Sözleşmemizdeki Koşullar çerçevesinde  evden eve nakliyat hizmetimizi olduğu gibi sürdürüp mutlu bir müşteri profilini arkamızda bırakma gayreti içerisinde devam etmekteyiz.
+
+Biz Diyarbakır evden eve nakliyat olarak bize taşıma hizmetini veren tüm müşterilerimize cani gülünden teşekkürlerimizi sunar. Çalışmalarımızdan mutlu kalacakları sözü vererek firmamızın devamlı müşterilerini temiz hijyenik bir ortamda taşınmalarını sağlayarak yolumuza devam etme mutluluğu içerisinde Çalışma yelpazemizi genişletme gayreti içerisinde olduğumuzu bilmelerini isteriz.
+
+Evden Eve Şehir İçi Ve Şehirler Arası Nakliyat İçin İrtibat numaralarımız 0532 372 84 77 ve www.diyarbakirtasima.com İnternet sitemiz dende ulaşa bilirsiniz
